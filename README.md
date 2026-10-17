@@ -214,4 +214,4 @@ Zombie Tsunami is offered as a full free version with all features and updates i
 Join the undead revolution today! Download Zombie Tsunami free and unleash chaos on the world!
 
 ---
-**Last updated:** 2026-10-16 22:37:09 UTC
+**Last updated:** 2026-10-17 01:07:24 UTC
